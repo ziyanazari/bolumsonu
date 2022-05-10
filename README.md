@@ -1,1 +1,1 @@
-# bolumsonucal-smas-
+bolumsonucalısması
