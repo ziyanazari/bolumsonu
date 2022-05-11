@@ -1,0 +1,1 @@
+benım ılk projem hatalar olabılır markdown yapısı ıle yazmadım suanlık :)
